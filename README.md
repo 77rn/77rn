@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **rn65464@gmail.com**
 
-- 📄 Know about my experiences ([https://rn65464.hackerresume.io/c8f75124-b9ec-458a-8a3c-871df55942a8](https://www.linkedin.com/safety/go?url=https%3A%2F%2Fdrive.google.com%2Ffile%2Fd%2F1-Mc5tsLczoIebRW6S9p9r6VZyt-BrcE8%2Fview%3Fusp%3Dsharing&messageThreadUrn=urn%3Ali%3AmessagingThread%3A2-Yjg0ZjUzODUtODg3Ni00ZTIxLWJjZTgtZDQ5NGRlMzE1OGZhXzAxMA%3D%3D&lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base%3BCUYXVGEARq%2B%2B4Hg7VmBeiQ%3D%3D))
+- 📄 Know about my experiences (https://drive.google.com/file/d/1-Mc5tsLczoIebRW6S9p9r6VZyt-BrcE8/view)
 
 - ⚡ Fun fact **Check My Projects**
 
